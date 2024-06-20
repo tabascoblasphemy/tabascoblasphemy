@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tabascoblasphemy 
+- 👀 I’m interested in: Vada Vada, Regretevator, Homestuck
+- 📫 How to reach me ... @Tabascoblasphemy on all platforms (tumblr, tiktok, discord)
+- 😄 Pronouns: ... Look at strawpage 
+- ⚡ Fun fact: ... I like music
